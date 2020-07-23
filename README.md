@@ -1,2 +1,0 @@
-# XYSatomi.github.io
-XYS
